@@ -1,1 +1,0 @@
-# davidadamsdesign.github.io
